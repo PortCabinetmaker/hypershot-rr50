@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with new Script for hypershot, the #1 Script. Includes no cooldown and speed for unbeatable performance.
 
 
 
